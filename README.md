@@ -1,11 +1,11 @@
 ![](https://komarev.com/ghpvc/?username=leomanfred)
 
 
-<sup><p align="center">![kavehwavinggif](https://media.tenor.com/A7oWYCpOUx8AAAAj/kaveh-genshin-kaveh.gif)
+<sup><p align="center">![obistandingupgif](https://s8.ezgif.com/tmp/ezgif-8e40077013e4c696.gif)
 
 
-<p align="center"><a href="https://open.spotify.com/track/0UOG0zUn7t8m8QcxfzR7AH?si=f28406ae96404201)"> ❝ 𝘰𝘩, 𝘨𝘰𝘭𝘥𝘦𝘯 𝘣𝘰𝘺, 𝘥𝘰𝘯'𝘵 𝘢𝘤𝘵 𝘭𝘪𝘬𝘦 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘬𝘪𝘯𝘥,</a>
-<p align="center"><a href="https://open.spotify.com/track/0UOG0zUn7t8m8QcxfzR7AH?si=f28406ae96404201)"> 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘮𝘪𝘯𝘦, 𝘣𝘶𝘵 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘢𝘸𝘧𝘶𝘭 𝘦𝘷𝘦𝘳𝘺 𝘵𝘪𝘮𝘦. ❞</a>
+<p align="center"><a href="https://open.spotify.com/track/4Zayz7dbduel3h0zyYk3qZ?si=8595084447724cd0)"> ❝ 𝙚𝙫𝙚𝙧𝙮 𝙢𝙤𝙢𝙚𝙣𝙩 𝙤𝙛 𝙩𝙝𝙚 𝙬𝙤𝙧𝙠𝙞𝙣𝙜 𝙙𝙖𝙮,</a>
+<p align="center"><a href="https://open.spotify.com/track/4Zayz7dbduel3h0zyYk3qZ?si=8595084447724cd0)"> 𝙩𝙝𝙚 𝙩𝙬𝙞𝙩𝙘𝙝𝙞𝙣𝙜 𝙢𝙪𝙨𝙘𝙡𝙚𝙨 𝙞𝙣 𝙚𝙖𝙘𝙝 𝙨𝙩𝙚𝙥 𝙞 𝙩𝙖𝙠𝙚. ❞</a>
   <sup><p align="center">✩ 𝗦𝗘𝗥𝗔𝗦𝗖𝗢𝗡𝗙𝗘𝗦𝗦𝗜𝗢𝗡 ✩</p><sup>
     <p align="center">𝗜𝗡𝗧𝗘𝗥𝗘𝗦𝗧𝗦</p>
 <p align="center">𝘶𝘳𝘣𝘦𝘹, 𝘵𝘩𝘳𝘪𝘧𝘵𝘪𝘯𝘨, 𝘨𝘳𝘦𝘦𝘬 𝘮𝘺𝘵𝘩𝘰𝘴, 𝘵𝘩𝘦 𝘮𝘦𝘥𝘪𝘤𝘢𝘭 𝘧𝘪𝘦𝘭𝘥,</p>
