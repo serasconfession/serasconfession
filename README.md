@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=leomanfred)
 
 
-<sup><p align="center">![obistandingupgif](https://s8.ezgif.com/tmp/ezgif-8e40077013e4c696.gif)
+<sup><p align="center">![obigif](https://64.media.tumblr.com/f8790b2697e7796f0dd62e3c2007d3cd/07794e3c079633ee-01/s400x600/c55b8b8f94eb8e782061901df98fc0da38be5002.gifv)
 
 
 <p align="center"><a href="https://open.spotify.com/track/4Zayz7dbduel3h0zyYk3qZ?si=8595084447724cd0)"> ❝ 𝙚𝙫𝙚𝙧𝙮 𝙢𝙤𝙢𝙚𝙣𝙩 𝙤𝙛 𝙩𝙝𝙚 𝙬𝙤𝙧𝙠𝙞𝙣𝙜 𝙙𝙖𝙮,</a>
